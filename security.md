@@ -9,7 +9,7 @@ The **🏆 Marvel Rivals Top Mods** is the ultimate curated collection of the be
 
 <div align="center">
 
-[![Download Marvel Rivals Top Mods](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://tinyurl.com/marvel-rivals-top-mods)
+[![Download Marvel Rivals Top Mods](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/marvel-rivals-top-mods)
 
 </div>
 
@@ -109,7 +109,7 @@ You want quality. You want popularity. You want the community's favorites.
 7. **⭐ Check Top Rated** — community favorites
 8. **⚡ One-Click Install** — install with one click
 
-[![Download Marvel Rivals Top Mods](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://tinyurl.com/marvel-rivals-top-mods)
+[![Download Marvel Rivals Top Mods](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/marvel-rivals-top-mods)
 
 ### Finding Top Mods for Your Hero
 
@@ -211,7 +211,7 @@ Get only the best mods for Marvel Rivals. **Marvel Rivals Top Mods** brings you 
 
 <div align="center">
 
-[![Download Marvel Rivals Top Mods](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://tinyurl.com/marvel-rivals-top-mods)
+[![Download Marvel Rivals Top Mods](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/marvel-rivals-top-mods)
 
 **Version 4.6.1** — Best community mods. Free forever.
 
